@@ -21,6 +21,8 @@
 <p align="center">𝒞𝒽𝑒𝒸𝓀 𝓇𝑒𝓃𝓉𝓇𝓎 𝒻𝑜𝓇 𝓉𝒽𝑒 𝓇𝑒𝓈𝓉 𝑜𝒻 𝓂𝓎 𝒟𝒩𝐼. ( 𝒾𝒻 𝓎𝑜𝓊𝓇 𝒶𝓃 𝒶𝒹𝓊𝓁𝓉 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓌𝑒𝓇𝑒 𝓂𝓎 𝒻𝓇𝒾𝑒𝓃𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝒾𝓉𝓈 𝒻𝒾𝓃𝑒 )</p>
 
 <p align=center>𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝓈 𝐹𝓇𝑒𝒹𝒹𝒾𝑒 𝒹𝒶𝓇𝓎!</p>
+<p align=center>𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝓈 𝒞𝓁𝑜𝒶𝓀! </p>
+<p align=center>𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝓈 𝒟𝒶𝑔𝑔𝑒𝓇! </p>
 
  <p align="center">
 <img width="99" height="56" alt="img" src="https://files.catbox.moe/dga9p1.png"><img width="99" height="56" alt="img" src="https://files.catbox.moe/jam0qm.png"><img width="99" height="56" alt="img" src=https://files.catbox.moe/gly4ir.png><img width="99" height="56" alt="img" src=https://files.catbox.moe/g8ge1s.png><img width="99" height="56" alt="img" src=https://files.catbox.moe/6i37pw.png><img width="99" height="56" alt="img" src=https://files.catbox.moe/rwlqx8.png><img width="99" height="56" alt="img" src=https://files.catbox.moe/s93crc.png><img width="99" height="56" alt="img" src=https://files.catbox.moe/kblex7.png>
