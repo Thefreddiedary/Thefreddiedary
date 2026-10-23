@@ -24,7 +24,7 @@
 <p align=center>𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝓈 𝒞𝓁𝑜𝒶𝓀! </p>
 <p align=center>𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝓈 𝒟𝒶𝑔𝑔𝑒𝓇! </p>
 
-<div class="center">
+<p align="center">
 <a href="https://www.pokemon-adoption.de">
 <img src="https://www.yatta-tempel.de/animierte/feeiana2.gif" style="width: 48px; height: 80px;" alt="Sylvie" /></a><br />
 <b>Name:</b> Sylvie<br />
