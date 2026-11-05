@@ -4,7 +4,7 @@
 
 mama
 
-<p align="center">
+<p align="right">
 <img width="540" height="240" alt="image" src="https://github.com/user-attachments/assets/5b2fc911-a528-4f0f-82fd-f62e5c3301db" />
 
 
