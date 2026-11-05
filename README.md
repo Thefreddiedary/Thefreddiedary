@@ -2,11 +2,10 @@
 <img width="540" height="240" alt="image" src="https://github.com/user-attachments/assets/8c207228-59b9-4634-9710-3a4e805128d2" />
 </p>
 
-
+mama
 
 <p align="center"
-<img width="540" height="240" alt="image" src="https://github.com/user-attachments/assets/0923804e-95c2-4af0-b5c2-6a08a91fb6e6" />
-</p>
+<img width="1080" height="680" alt="image" src="https://github.com/user-attachments/assets/5b2fc911-a528-4f0f-82fd-f62e5c3301db" />
 
 
 
