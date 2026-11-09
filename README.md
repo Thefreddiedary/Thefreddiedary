@@ -11,7 +11,7 @@
 ૮ ᴅᴏ !ɴᴏᴛ! ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ʏᴏᴜ ᴀʀᴇ ᴏᴋᴀʏ / ꜰᴏʟʟᴏᴡɪɴɢ ᴀ ᴄᴏᴍ / ᴅᴀʀᴋ / ᴘʀᴏꜱʜɪᴘᴘᴇʀ. ⁺  ︵ ༺ ა
 
 <p align="center">
-<img width="540" height="240" alt="image" src="https://github.com/user-attachments/assets/5b2fc911-a528-4f0f-82fd-f62e5c3301db" />
+<img width="666" height="240" alt="image" src="https://github.com/user-attachments/assets/fa2b03cc-12ff-4f5c-9c0d-05359fb70800" />
 
 
 
