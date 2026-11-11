@@ -11,7 +11,8 @@
 ૮  ​𝘾heck 𝙖ll 𝙢y 𝙡inks​ !!  𓎢𓎟  ა
 <p align="center">
 ૮ 𝘿o 𝙉𝙊𝙏 𝙞nteract 𝙞f 𝙮ou 𝙖re 𝙤kay 𝙬ith / 𝙛ollowing 𝙖 𝙥ro/𝙘om/𝙙arkshipper. ⁺  ︵ ༺ ა
-https://homicidal-liu.straw.page <- ( Blocked people in there )
+
+  https://homicidal-liu.straw.page <- ( Blocked people in there )
 
 <p align="center">
 <img width="666" height="240" alt="image" src="https://github.com/user-attachments/assets/fa2b03cc-12ff-4f5c-9c0d-05359fb70800" />
