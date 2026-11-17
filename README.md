@@ -15,6 +15,9 @@
   https://homicidal-liu.straw.page <- ( Blocked people in there )
 
 <p align="center">
+Im a very socially awkward person and I may not interact with you mainly because of my own fears of just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭
+
+<p align="center">
 <img width="666" height="240" alt="image" src="https://github.com/user-attachments/assets/fa2b03cc-12ff-4f5c-9c0d-05359fb70800" />
 
 
