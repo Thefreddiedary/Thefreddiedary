@@ -14,9 +14,7 @@
 <p align="center">
   https://homicidal-liu.straw.page <- ( Blocked people in there )
 
-<details Extra="1">
-Im a very socially awkward person and I may not interact with you mainly because of my own fears and just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭
-</details>
+<details Extra="1">Im a very socially awkward person and I may not interact with you mainly because of my own fears and just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭 </details>
 
 
 
