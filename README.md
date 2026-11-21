@@ -17,7 +17,7 @@
 
 <p align="center"> 
 <details>
-<summary>Extra</summary>
+<summary>𝙀xtra</summary>
 Im a very socially awkward person and I may not interact with you mainly because of my own fears and just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭
 
 
