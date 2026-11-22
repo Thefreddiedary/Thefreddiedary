@@ -20,7 +20,17 @@ with all the love I carry . . . '
 <p align="center">
   https://homicidal-liu.straw.page <- ( Blocked people in there )
 
+<p align="center">
+we'll get married '
 
+
+<p align="center">
+and one day ,,
+
+  
+<p align="center">
+' Keep you close ,,
+<p align="center">
 <img width="850" height="240" alt="image" src="https://github.com/user-attachments/assets/00d95430-4801-429b-9d81-ae360a34227a" />
 
 
