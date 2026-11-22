@@ -52,6 +52,9 @@ Ponytowns :
 
 <img width="400" height="25" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />
 
+Bloodkissed / Cherrey document. 
+https://docs.google.com/document/d/1CRiP_VMPBZVZJUHBoxbGYWgL1vsB4m2YfZCWQpRocCY/edit?usp=sharing
+
 
 
 
