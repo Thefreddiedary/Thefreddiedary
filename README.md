@@ -42,7 +42,11 @@ and one day ,,
 <summary>𝙀xtra</summary>
 Im a very socially awkward person and I may not interact with you mainly because of my own fears and just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭
 
-  Do NOT associate me with Bloodkissed / Cherrey. Thank you!
+Do NOT associate me with Bloodkissed / Cherrey. Thank you!
+
+Ponytowns : 
+<img width="95" height="85" alt="image" src="https://github.com/user-attachments/assets/0fbb7060-212a-4e0d-b239-f2813a7602c4" />
+
 
 
 
