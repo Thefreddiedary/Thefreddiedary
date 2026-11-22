@@ -7,10 +7,6 @@ your bones ,,
 <p align="center">  
 with all the love I carry . . . '
 
-
-
-
-
 <p align="center">
 ૮  𝙆aleb  𓏵   𝙆asper ⁺  ︵ ༺ ა
 <p align="center">
@@ -23,6 +19,9 @@ with all the love I carry . . . '
 ૮ 𝘿o 𝙉𝙊𝙏 𝙞nteract 𝙞f 𝙮ou 𝙖re 𝙤kay 𝙬ith / 𝙛ollowing 𝙖 𝙥ro/𝙘om/𝙙arkshipper. ⁺  ︵ ༺ ა
 <p align="center">
   https://homicidal-liu.straw.page <- ( Blocked people in there )
+
+
+<img width="850" height="240" alt="image" src="https://github.com/user-attachments/assets/00d95430-4801-429b-9d81-ae360a34227a" />
 
 
 <p align="center"> 
