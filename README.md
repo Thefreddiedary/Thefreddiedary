@@ -42,8 +42,6 @@ and one day ,,
 <summary>𝙀xtra</summary>
 Im a very socially awkward person and I may not interact with you mainly because of my own fears and just being shy (im so so sorry-) PLEASEEEE cuddle or whisper me first I might find the courage to respond again im sorry 😭
 
-Do NOT associate me with Bloodkissed / Cherrey. Thank you!
-
 Ponytowns : 
 
 <img width="400" height="95" alt="image" src="https://github.com/user-attachments/assets/0fbb7060-212a-4e0d-b239-f2813a7602c4" />
@@ -53,7 +51,10 @@ Ponytowns :
 <img width="400" height="25" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />
 
 Bloodkissed / Cherrey document. 
+
 https://docs.google.com/document/d/1CRiP_VMPBZVZJUHBoxbGYWgL1vsB4m2YfZCWQpRocCY/edit?usp=sharing
+
+I no longer associate with or want to be associated with cherrey. We are no longer friends and I do NOT want to be tied into their drama, I am so sorry to florian, you deserve the world dude.
 
 
 
