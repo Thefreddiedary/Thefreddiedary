@@ -24,7 +24,7 @@ with all the love I carry . . . '
 --------------
 
 <p align="center">
-we'll get married '
+we'll get married . . . '
 
 
 <p align="center">
