@@ -48,7 +48,7 @@ Ponytowns :
 
 <img width="195" height="65" alt="image" src="https://github.com/user-attachments/assets/0fbb7060-212a-4e0d-b239-f2813a7602c4" />
 <img width="255" height="65" alt="image" src="https://github.com/user-attachments/assets/7842e1bf-02fb-4b34-a990-d913fd0027d8" />
-<img width="255" height="65" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />
+<img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />
 
 
 
