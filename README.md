@@ -48,7 +48,10 @@ Ponytowns :
 
 <img width="400" height="35" alt="image" src="https://github.com/user-attachments/assets/7842e1bf-02fb-4b34-a990-d913fd0027d8" />
 
-<img width="400" height="25" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />|
+<img width="400" height="25" alt="image" src="https://github.com/user-attachments/assets/a4f039d3-e8a2-42ea-b3ed-5cb8b141772a" />
+
+<img width="400" height="26" alt="image" src="https://github.com/user-attachments/assets/6b5de3ed-5c0e-45ef-9b20-75cbd6fe5be4" />
+
 
 
 I no longer associate with or want to be associated with cherrey. We are no longer friends and I do NOT want to be tied into their drama, I am so sorry to florian, you deserve the world dude.
